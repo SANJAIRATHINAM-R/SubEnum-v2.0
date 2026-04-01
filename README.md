@@ -172,8 +172,8 @@ To become a top cybersecurity expert and build advanced platforms that help othe
 ## 🌐 Connect With Me
 
 * GitHub: https://github.com/SANJAIRATHINAM-R
-* LinkedIn: https://linkedin.com/in/sanjaiajairathinam
-* Instagram: https://instagram.com/sanjaiajairathinam
+* LinkedIn: https://linkedin.com/in/sanjairathinamn17
+* Instagram: https://instagram.com/sanjairathinam
 
 ---
 
